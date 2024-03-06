@@ -1,4 +1,4 @@
-##  Olá! Eu sou o Alessandro Alves 💻
+##  Olá! Eu sou Alessandro Alves 💻
 👨‍💻 Software Quality Assurance Engineer
 
 💌 Contact me: ⤵️
